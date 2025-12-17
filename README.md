@@ -1,9 +1,9 @@
 ## Hi there 😁
 
 - I’m currently working on Clover - Space Station 14 HRP! Check it out today: https://github.com/minkalicious/clover-14
-- Feel free to DM me on matters on my Discord, either **@boqtyr** or **@ivomink**. Doesn't matter!
+- Feel free to DM me on matters on my Discord, either **@ai_ivo** or **@ivorq**. Doesn't matter!
 - Ask me about Clover🍀
-- My steam is https://steamcommunity.com/id/gevalt/
+- My steam is https://steamcommunity.com/id/ivomink
 
 - Ask me about my music preferences!
 - I am a drummer and saxophonist for 9 years.
